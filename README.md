@@ -7,7 +7,7 @@
 <p align="left"> 🕸️ He/Him only. -14, +18 DNI. ♏︎ </p>
 
 <p align="left">
-<a href="https://carnivorousarachnid.straw.page//">Strawpage >::::) </a>
+<a href="https://carnivorousarachnid.straw.page/">Strawpage >::::) </a>
 </p>
 
 
